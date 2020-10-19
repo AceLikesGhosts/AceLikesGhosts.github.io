@@ -2,7 +2,9 @@
 ## ~ 𝒲 𝑒 𝓁 𝒸 𝑜 𝓂 𝑒 ~
 
 **If you need to contact me, please add me on Discord or Steam!**
+
 [Steam!](steamcommunity.com/id/AceOfGays)
+
 ᴀᴄᴇ  ❤#1337
 
 ## ~ 𝒮𝑜𝒸𝒾𝒶𝓁 𝑀𝑒𝒹𝒾𝒶 ~
