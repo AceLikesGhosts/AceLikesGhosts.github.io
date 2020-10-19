@@ -3,10 +3,9 @@
 
 **If you need to contact me, please add me on Discord or Steam!**
 
-#####A bit about myself~
+##### A bit about myself~
 
-I am a 19 year old male, I am happily taken.
-I try to appear edgy, although I don't think it works ;-;
+I am a 19 year old male, I am happily taken. I try to appear edgy, although I don't think it works ;-;
 
 [Steam!](steamcommunity.com/id/AceOfGays)
 
