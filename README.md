@@ -7,7 +7,8 @@
 
 ~ Social Medias ~
 
-[twitter.com/AceLikesGh0sts]Twitter!
+[Twitter!](twitter.com/AceLikesGh0sts)
+[GitHub](http://github.com)
 [reddit.com/user/AceLikesGh0sts]Reddit!
 [twitch.tv/Ace2]Twitch!
 [youtube.com/AceLikesGhosts]Youtube!
