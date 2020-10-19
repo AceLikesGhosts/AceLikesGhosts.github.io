@@ -9,18 +9,8 @@ I am a 19 year old male, I am happily taken. I try to appear edgy, although I do
 
 I enjoy playing video games, and bullying my BF. ^~^
 
-## ~ 𝒮𝑜𝒸𝒾𝒶𝓁 𝑀𝑒𝒹𝒾𝒶 ~
+## ~ 𝐹𝒾𝓃𝒹 𝑀𝑒 𝒜𝓉 ~
 
-[Steam!](steamcommunity.com/id/AceOfGays)
+Steam!- steamcommunity.com/id/AceOfGays
 
-[Discord! - ᴀᴄᴇ  ❤#1337](discord.gg/BsDkJdM)
-
-[Twitter!](twitter.com/AceLikesGh0sts)
-
-[Reddit!](reddit.com/user/AceLikesGh0sts)
-
-[Twitch!](twitch.tv/Ace2)
-
-[Youtube!](youtube.com/AceLikesGhosts)
-
-[Spotify!](open.spotify.com/user/2erymj2i41554d026ps2gu37a)
+Discord! - ᴀᴄᴇ  ❤#1337
