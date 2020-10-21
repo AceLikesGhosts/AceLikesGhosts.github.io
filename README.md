@@ -1,5 +1,5 @@
 ## ~ 𝒲 𝑒 𝓁 𝒸 𝑜 𝓂 𝑒 ~
-<img src="https://pbs.twimg.com/profile_banners/1290881874160623616/1603073339/1500x500" width="860">
+<img src="https://pbs.twimg.com/profile_banners/1290881874160623616/1603073339/1500x500" width="860" length="860">
 
 ---
 
