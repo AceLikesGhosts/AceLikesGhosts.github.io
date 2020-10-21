@@ -5,12 +5,18 @@
 
 ### A bit about myself~
 
-I am a 19 year old male, I am happily taken. I try to appear edgy, although I don't think it works. ;-;
+I am a 19 year old male, I am happily taken. I try to appear edgy 🖤, although I don't think it works. ;-;
 
 I enjoy playing video games, and bullying my BF. ^~^
 
 ## ~ 𝐹𝒾𝓃𝒹 𝑀𝑒 𝒜𝓉 ~
 
-Steam!- steamcommunity.com/id/AceOfGays
+[Steam!][Steam]
 
-Discord! - ᴀᴄᴇ  ❤#1337
+[Discord! - ᴀᴄᴇ  ❤#1337][Discord]
+
+[Twitter!][Twitter]
+
+[Steam]: https://steamcommunity.com/id/AceOfGays
+[Discord]: https://discord.gg/BsDkJdM
+[Twitter]: https://twitter.com/AceLikesGh0sts
