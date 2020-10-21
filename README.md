@@ -1,7 +1,7 @@
 ## ~ 𝒲 𝑒 𝓁 𝒸 𝑜 𝓂 𝑒 ~
 <img src="https://pbs.twimg.com/profile_banners/1290881874160623616/1603073339/1500x500" width="860">
 
-#### **Ah yes, you have somehow stubbled across my little corner of the internet.**
+### **Ah yes, you have somehow stubbled across my little corner of the internet.**
 
 **If you need to contact me, please add me on Discord or Steam!**
 
