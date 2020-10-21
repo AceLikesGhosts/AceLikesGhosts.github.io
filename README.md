@@ -13,6 +13,8 @@ I am a 19 year old male, I am happily taken. I try to appear edgy 🖤, although
 
 I enjoy playing video games, and bullying my BF. ^~^
 
+---
+
 ### ~  𝐹𝒾𝓃𝒹 𝑀𝑒 𝒜𝓉 ~
 
 [Steam!][Steam]
