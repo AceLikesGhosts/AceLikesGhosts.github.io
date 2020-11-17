@@ -23,8 +23,14 @@ I enjoy playing video games, and bullying my BF. ^~^
 
 [Twitter!][Twitter]
 
+[Youtube!][Youtube]
+
+[Twitch! :D][Twitch]
+
 <!--Varibles-->
 
 [Steam]: https://steamcommunity.com/id/AceOfGays
 [Discord]: https://discord.gg/BsDkJdM
 [Twitter]: https://twitter.com/AceLikesGh0sts
+[Youtube]: https://youtube.com/c/AceLikesGhosts
+[Twitch]: https://twitch.tv/ace2
