@@ -30,7 +30,7 @@ I enjoy playing video games, and bullying my BF. ^~^
 <!--Varibles-->
 
 [Steam]: https://steamcommunity.com/id/AceOfGays
-[Discord]: https://discord.gg/BsDkJdM
+[Discord]: https://discord.gg/NahFuckYou
 [Twitter]: https://twitter.com/AceLikesGh0sts
 [Youtube]: https://youtube.com/c/AceLikesGhosts
 [Twitch]: https://twitch.tv/ace2
