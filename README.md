@@ -3,7 +3,7 @@
 
 ---
 
-### **Ah yes, you have somehow stubbled across my little corner of the internet.**
+### **Ah yes, you have somehow stumbled across my little corner of the internet.**
 
 **If you need to contact me, please add me on Discord or Steam!**
 
